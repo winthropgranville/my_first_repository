@@ -6,6 +6,6 @@ Looking better...
 
 Even better..
 
-
-Maybe he doesn't like WINDOWS???
+I def had to jump hoops to figure things out cause of his lack of WINDOWS info...
+Does that make him a dbag?
 
